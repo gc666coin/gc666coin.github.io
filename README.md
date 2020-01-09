@@ -1,0 +1,1 @@
+# gc666coin.github.io
